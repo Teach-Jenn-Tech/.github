@@ -1,7 +1,7 @@
 
 ### :wave: I’m Jenn Junod, it’s lovely to meet you!
 
-As someone who thrives on human connection, I advocate for those who have gone unheard. My passion and experience create a space where people can come together, be it learning live, hosting [Sh!t You Don't Want to Talk About](Sh!t You Don't Want to Talk About), or being a [Developcado](https://dev.to/jennjunod/series/19669).
+As someone who thrives on human connection, I advocate for those who have gone unheard. My passion and experience create a space where people can come together, be it learning live, hosting [Shit2TalkAbout](https://shit2talkabout.com), or being a [Developcado](https://dev.to/jennjunod/series/19669).
 
 I am a developcado (Developer Advocate), speaker, podcast host, and live streamer. 
 
