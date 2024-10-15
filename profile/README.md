@@ -1,4 +1,3 @@
-![teachjenntechthumbnail](https://user-images.githubusercontent.com/77285384/213207980-0ae4f349-6de4-424f-afda-2b89ea4e95d6.png)
 
 ### :wave: I’m Jenn Junod, it’s lovely to meet you!
 
